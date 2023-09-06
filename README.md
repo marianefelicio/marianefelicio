@@ -1,5 +1,4 @@
-### Hi there 👋
-
+![](https://media.tenor.com/4ypda0Yf3pIAAAAC/mc-hariel-hariel.gif)
 <!--
 **marianefelicio/marianefelicio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
